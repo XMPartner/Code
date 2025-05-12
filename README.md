@@ -1,6 +1,6 @@
 # XM Forex & CFD Trading - Exclusive Partner Bonuses
 
-![XM Trading Banner](https://i.ibb.co/xm-trading-banner.png)
+![XM Trading Banner](xm-trading-banner.png)
 
 ## 🔥 Exclusive Partner Code: `PY8GQ`
 
