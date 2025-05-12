@@ -1,4 +1,4 @@
-# XM Forex & CFD Trading - Exclusive Partner Bonuses
+# XM Partner Code: PY8GQ - Unlock a 100% Deposit Bonus (Up to $500) and a $30 No-Deposit Bonus
 
 ![XM Trading Banner](xm-trading-banner.png)
 
