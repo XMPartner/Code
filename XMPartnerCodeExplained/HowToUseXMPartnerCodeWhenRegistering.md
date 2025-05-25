@@ -1,4 +1,4 @@
-# XM Trading Partner Code - PY8GQ
+# XM Partner Code PY8GQ explained: How to Use It When Registering
 
 ![XM Trading Banner](xm-trading-banner.png)
 
